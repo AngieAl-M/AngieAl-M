@@ -1,7 +1,5 @@
 ## Hi there 👋
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on my profile.
 - 🌱 I’m currently learning how to make websites.
 - 👯 I’m looking to collaborate on how to make more sophisticated websites.
