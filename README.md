@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with 
 - 💬 Ask me about anything.
 - 📫 How to reach me: angie-al-almahayri@stu.ocsb.ca
-- 😄 Pronouns: She/her...
-- ⚡ Fun fact: I love cats...
+- 😄 Pronouns: She/her.
+- ⚡ Fun fact: I love cats.
