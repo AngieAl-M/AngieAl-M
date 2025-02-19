@@ -8,3 +8,11 @@
 - 📫 How to reach me: angie-al-almahayri@stu.ocsb.ca
 - 😄 Pronouns: She/her.
 - ⚡ Fun fact: I love cats.
+ ／＞　　フ
+| 　_　 _ l
+／` ミ＿xノ
+/　　　 　 |
+/　 ヽ　　 ﾉ
+│　　| | | 
+
+
